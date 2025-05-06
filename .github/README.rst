@@ -1,5 +1,5 @@
 ====================================================================================================
-🎯 Blue Lock: Rivals Script (Roblox) - Free Undetected Hack | Auto Train, Auto Score, God Mode, OP Stats, Exploits & More (2024)
+🎯 Blue Lock: Rivals Script (Roblox) - Free Undetected Hack | Auto Train, Auto Score, God Mode, OP Stats, Exploits & More (2025)
 ====================================================================================================
 
 Welcome to **Blue Lock: Rivals Script**, a powerful and potentially undetectable **hack/script for the Roblox game "Blue Lock: Rivals"**. This free script *aims* to feature **Auto Training**, **Auto Scoring** (in matches), **God Mode**, **OP Stats**, **Exploits**, and much more to help you quickly improve your player's skills, dominate matches, acquire resources, and become the ultimate egoist striker, minimizing the risk of detection.
